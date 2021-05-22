@@ -1,0 +1,2 @@
+# ashti_kazim
+Kurdish
